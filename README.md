@@ -1,5 +1,3 @@
 # Today's Wise Message
 
-The perfect story has foreshadowing
-
-"My Head Hurts" - JFK
+Yea... I totally wrote this Oct. 30, 2022...

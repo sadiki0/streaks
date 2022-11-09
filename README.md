@@ -1,3 +1,4 @@
 # Today's Wise Message
 
-If your a guy, and your girl is a lesbian. Thats a red flag!
+"You looked so good, huh, I suck on your daddy's dick" - Biggie, another wise man
+

@@ -1,4 +1,5 @@
 # Today's Wise Message
 
-"You looked so good, huh, I suck on your daddy's dick" - Biggie, another wise man
+If kissing your homie's isn't gay, then why can't I suck them?
 
+America truely has some logic flaws.

@@ -1,5 +1,3 @@
 # Today's Wise Message
 
-If kissing your homie's isn't gay, then why can't I suck them?
-
-America truely has some logic flaws.
+When you eat that asian pussy, you GOT to get that sweet-and-sour sauce.

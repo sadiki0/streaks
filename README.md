@@ -1,3 +1,7 @@
 # Today's Wise Message
 
-When you eat that asian pussy, you GOT to get that sweet-and-sour sauce.
+WARNING: Never let those intrusive thoughts cloud your mind.
+
+Like your parents conceiving you...
+
+You're welcome

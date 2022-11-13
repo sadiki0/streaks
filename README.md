@@ -1,7 +1,5 @@
 # Today's Wise Message
 
-WARNING: Never let those intrusive thoughts cloud your mind.
+Grammy's. MORE LIKE GRIMy's!! HAHHAHAHAHAHAHAHAHHA!!
 
-Like your parents conceiving you...
-
-You're welcome
+(laugh)

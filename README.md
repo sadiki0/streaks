@@ -1,5 +1,3 @@
 # Today's Wise Message
 
-Grammy's. MORE LIKE GRIMy's!! HAHHAHAHAHAHAHAHAHHA!!
-
-(laugh)
+NYC more like Not Your City! AHAHAHAHAAAHAHAHA!!!!!

@@ -1,3 +1,5 @@
 # Today's Wise Message
 
-NYC more like Not Your City! AHAHAHAHAAAHAHAHA!!!!!
+Illmatic one of the greatest albums of all time...
+
+Just sayin...

@@ -1,5 +1,7 @@
 # Today's Wise Message
 
-Nothin better then flying a airliner while high on some weed.
+Newbies program on Window's.
 
-Didn't know they had git in Heaven... Learned something new today...
+Pros programm on Linux.
+
+Masters program in a virtual machine that has passthrough enabled.

@@ -1,7 +1,3 @@
 # Today's Wise Message
 
-Newbies program on Window's.
-
-Pros programm on Linux.
-
-Masters program in a virtual machine that has passthrough enabled.
+"Back in the day, I used to spray breath mint on the pussy before I ate it," said some fellow wise man.

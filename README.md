@@ -1,5 +1,7 @@
 # Today's Wise Message
 
-When her age is on the clock, she is ready for the c-
+Rizzlam 101:
 
-(I have been advised not to finish that sentence)
+To win any girl's heart over, say "I know you're probably asleep"
+
+-Coach Garrison, 2022

@@ -1,7 +1,5 @@
 # Today's Wise Message
 
-Rizzlam 101:
+The perfect story has foreshadowing
 
-To win any girl's heart over, say "I know you're probably asleep"
-
--Coach Garrison, 2022
+"My Head Hurts" - JFK

@@ -1,3 +1,3 @@
 # Today's Wise Message
 
-Yea... I totally wrote this Oct. 30, 2022...
+Might be moving to Alabama for the perks

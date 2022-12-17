@@ -1,3 +1,3 @@
 # Today's Wise Message
 
-Might be moving to Alabama for the perks
+I feel so sad for all the 5 people living in Wyoming

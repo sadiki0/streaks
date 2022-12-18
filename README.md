@@ -1,3 +1,5 @@
 # Today's Wise Message
 
-I feel so sad for all the 5 people living in Wyoming
+I wish I didn't make furry art...
+
+but once you start... you can't stop...

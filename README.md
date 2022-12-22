@@ -1,5 +1,3 @@
 # Today's Wise Message
 
-I wish I didn't make furry art...
-
-but once you start... you can't stop...
+I cheated here.

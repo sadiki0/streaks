@@ -1,3 +1,4 @@
 # Today's Wise Message
 
-I cheated here.
+I cheated here too
+

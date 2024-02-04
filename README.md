@@ -1,2 +1,2 @@
 # Today's Wise Message
-When too lazy to do a commit, create a streak repo
+Jail is like getting your back blown out by some people who absorb more melanin than you
